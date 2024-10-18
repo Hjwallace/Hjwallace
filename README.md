@@ -1,5 +1,5 @@
 
-![banner](https://github.com/user-attachments/assets/8cff51a0-524c-4bbe-9831-ad14d054bd88)
+![banner-2](https://github.com/user-attachments/assets/8365a9b4-ff30-44e6-90f9-39dfda5fd546)
 
 
 <a href="https://github.com/anuraghazra/github-readme-stats">
